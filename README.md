@@ -1,5 +1,8 @@
 # ergonomia_no_trabalho
 
+<p align="center">
+  <img src="https://raw.githubusercontent.com/luzfcb/ergonomia_no_trabalho/master/blue.png" alt="blue"/>
+</p>
 
 
 Repositório para listar produtos uteis para ergonomia no trabalho, visando manter a saúde de quem trampa muito tempo sentado (ou não) ou muito tempo na frente de uma tela de computador.
