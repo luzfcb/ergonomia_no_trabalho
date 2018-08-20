@@ -37,4 +37,5 @@ Dell P2317H: https://www.dell.com/pt-br/shop/monitor-dell-23-p2317h/apd/210-amkh
 ## Oculos com filtros de luz azul:
 
  Xiaomi TS v1 https://www.gearbest.com/other-eyewear/pp_1122617.html?wid=1433363
+ 
  Xiaomi TS v2 https://www.gearbest.com/other-eyewear/pp_666152.html?wid=1527929
