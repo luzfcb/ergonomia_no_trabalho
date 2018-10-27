@@ -10,15 +10,19 @@ Repositório para listar produtos uteis para ergonomia no trabalho, visando mant
 
 ## Mesas
 
+Mesas de Escritório com Regulagem de Altura Elétrica (vulgo "standing desk") https://www.geniodesks.com.br/
+
 
 ## Cadeiras:
 
-### Executiva
-
-
-### Presidencial
 
 Cadeira Escritório Wau Super Ergonômica Mesh http://www.loja.eroflex.com.br/cadeiras-de-escritorio/diretor/cadeira-escritorio-wau-super-ergonomica-preta-mesh
+
+Cadeira Escritório Contessa by Okamura (vendida no brasil pela FlexForm)
+http://www.flexform.com.br/produtos/contessa/
+
+
+Cadeira Escritório Way C-20 Caderode: https://www.caderode.com.br/poltronas/linha-way/3
 
 
 ## Apoio para os pés
