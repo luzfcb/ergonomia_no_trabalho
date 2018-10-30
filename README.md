@@ -16,7 +16,9 @@ Mesas de Escritório com Regulagem de Altura Elétrica (vulgo "standing desk") h
 ## Cadeiras:
 
 
-Cadeira Escritório Wau Super Ergonômica Mesh http://www.loja.eroflex.com.br/cadeiras-de-escritorio/diretor/cadeira-escritorio-wau-super-ergonomica-preta-mesh
+Cadeira Escritório Wau Super Ergonômica Mesh: http://www.loja.eroflex.com.br/cadeiras-de-escritorio/diretor/cadeira-escritorio-wau-super-ergonomica-preta-mesh
+
+Cadeira Escritório Wau 2.0 Super Ergonômica Assento Couro: http://www.loja.eroflex.com.br/cadeiras-de-escritorio/linha-wau/cadeira-escritorio-wau-super-ergonomica-2-0
 
 Cadeira Escritório Contessa by Okamura (vendida no brasil pela FlexForm)
 http://www.flexform.com.br/produtos/contessa/
