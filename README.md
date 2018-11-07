@@ -47,7 +47,7 @@ Base para notebook com cooler https://www.kabum.com.br/cgi-local/site/produtos/d
 
 ## Monitores
 
-Dell P2317H: https://www.dell.com/pt-br/shop/monitor-dell-23-p2317h/apd/210-amkh/monitores-e-acessórios 
+Dell P2317H, ajuste de altura da tela, rotação da tela, angulo da tela e rotação da base: https://www.dell.com/pt-br/shop/monitor-dell-23-p2317h/apd/210-amkh/monitores-e-acessórios 
 
 
 ## Oculos com filtros de luz azul:
