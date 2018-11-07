@@ -55,3 +55,7 @@ Dell P2317H, ajuste de altura da tela, rotação da tela, angulo da tela e rota�
  Xiaomi TS v1 https://www.gearbest.com/other-eyewear/pp_1122617.html?wid=1433363
  
  Xiaomi TS v2 https://www.gearbest.com/other-eyewear/pp_666152.html?wid=1527929
+ 
+## Mouse
+ 
+Logitech MX Ergo (trackball mouse): https://www.logitech.com/en-us/product/mx-ergo-wireless-trackball-mouse
