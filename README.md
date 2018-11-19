@@ -59,3 +59,7 @@ Dell P2317H, ajuste de altura da tela, rotação da tela, angulo da tela e rota�
 ## Mouse
  
 Logitech MX Ergo (trackball mouse): https://www.logitech.com/en-us/product/mx-ergo-wireless-trackball-mouse
+
+## Artigos
+
+Tips for a sucessful switch to a standing desk: https://dev.to/jerodsanto/tips-for-a-successful-switch-to-a-standing-desk-4p8o
