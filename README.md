@@ -40,6 +40,8 @@ https://www.ergonomize.com/linha-apoio-para-os-pes-c8
 
 ## Suporte articulado para monitor
 
+Suportes articulados por pistão a gás: [ELG Pedestais (Suportes Articulados Pistão)](http://www.elgpedestais.com.br/produtos/suportes/suportes-com-pistao-a-gas/)
+
 ## Suporte para notebook
 
 Base para notebook com cooler https://www.kabum.com.br/cgi-local/site/produtos/descricao_ofertas.cgi?codigo=63729
