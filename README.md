@@ -20,11 +20,11 @@ Cadeira Escritório Wau Super Ergonômica Mesh: http://www.loja.eroflex.com.br/c
 
 Cadeira Escritório Wau 2.0 Super Ergonômica Assento Couro: http://www.loja.eroflex.com.br/cadeiras-de-escritorio/linha-wau/cadeira-escritorio-wau-super-ergonomica-2-0
 
-Cadeira Escritório Contessa by Okamura (vendida no brasil pela FlexForm)
-http://www.flexform.com.br/produtos/contessa/
+Cadeira Escritório Okamura Contessa (vendida no brasil pela FlexForm) http://www.flexform.com.br/produtos/contessa/
 
+Cadeira Escritório FlexForm Principèssa http://www.flexform.com.br/produtos/principessa/
 
-Cadeira Escritório Way C-20 Caderode: https://www.caderode.com.br/poltronas/linha-way/3
+Cadeira Escritório Caderode Way C-20 : https://www.caderode.com.br/poltronas/linha-way/3
 
 
 ## Apoio para os pés
