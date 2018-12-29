@@ -26,6 +26,10 @@ Cadeira Escritório FlexForm Principèssa http://www.flexform.com.br/produtos/pr
 
 Cadeira Escritório Caderode Way C-20 : https://www.caderode.com.br/poltronas/linha-way/3
 
+Cadeira Herman Miller Embody Preta (12 anos de garantia): https://store.hermanmiller.com.br/cadeira-embody-preta-cn122-preto/p
+
+Cadeira Herman Miller Aeron Grafite modelo B (12 anos de garantia): https://store.hermanmiller.com.br/cadeira-aeron-grafite-aer-grafite/p
+
 
 ## Apoio para os pés
 
