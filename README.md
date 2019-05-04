@@ -38,7 +38,7 @@ https://www.ergonomize.com/linha-apoio-para-os-pes-c8
 
 
 
-## Suporter para monitor/notebook
+## Suporte para monitor/notebook
 
 Base para notebook com cooler https://www.kabum.com.br/cgi-local/site/produtos/descricao_ofertas.cgi?codigo=63729
 
