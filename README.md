@@ -40,6 +40,8 @@ https://www.ergonomize.com/linha-apoio-para-os-pes-c8
 
 ## Suporter para monitor/notebook
 
+Base para notebook com cooler https://www.kabum.com.br/cgi-local/site/produtos/descricao_ofertas.cgi?codigo=63729
+
 Suportes duplo para monitor e notebook AirMicro LiveUP:  
 https://www.idesan.com.br/suporte-para-monitornotebook-live-up
 
@@ -57,12 +59,6 @@ https://www.idesan.com.br/suporte-para-notebook-alpha-n
 
 Suportes articulados por duplo para monitor e notebook AirMicro ALPHA DUPLO AN:  
 https://www.idesan.com.br/suporte-para-monitor-alpha-duplo-an
-
-
-
-## Suporte para notebook
-
-Base para notebook com cooler https://www.kabum.com.br/cgi-local/site/produtos/descricao_ofertas.cgi?codigo=63729
 
 
 ## Monitores
