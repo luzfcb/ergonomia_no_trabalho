@@ -38,13 +38,27 @@ https://www.ergonomize.com/linha-apoio-para-os-pes-c8
 
 
 
-## Suporter para monitor
+## Suporter para monitor/notebook
+
+Suportes duplo para monitor e notebook AirMicro LiveUP:  
+https://www.idesan.com.br/suporte-para-monitornotebook-live-up
 
 
+Suportes para monitor AirMicro Vero:  
+https://www.idesan.com.br/suporte-para-notebook-vero
 
-## Suporte articulado para monitor
+
+## Suporte articulado para monitor/notebook
 
 Suportes articulados por pistão a gás: [ELG Pedestais (Suportes Articulados Pistão)](http://www.elgpedestais.com.br/produtos/suportes/suportes-com-pistao-a-gas/)
+
+Suportes articulados por duplo para notebook AirMicro ALPHA N: 
+https://www.idesan.com.br/suporte-para-notebook-alpha-n
+
+Suportes articulados por duplo para monitor e notebook AirMicro ALPHA DUPLO AN:  
+https://www.idesan.com.br/suporte-para-monitor-alpha-duplo-an
+
+
 
 ## Suporte para notebook
 
