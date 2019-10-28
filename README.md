@@ -61,6 +61,10 @@ Suportes articulados por duplo para monitor e notebook AirMicro ALPHA DUPLO AN:
 https://www.idesan.com.br/suporte-para-monitor-alpha-duplo-an
 
 
+Suportes articulados por duplo para notebook `OA-7X` (tem deposito no brasil com entrega via Correios. O frete é mais caro que o produto, contudo, o produto em si, incluido o frete é melhor que qualquer um disponivel para comprar em outros locais):
+https://pt.aliexpress.com/item/32808143205.html
+
+
 ## Monitores
 
 Dell P2319H, ajuste de altura da tela, rotação da tela, angulo da tela e rotação da base: https://www.dell.com/pt-br/work/shop/monitor-dell-de-23-p2319h/apd/210-aqjj/monitores-e-acess%C3%B3rios
