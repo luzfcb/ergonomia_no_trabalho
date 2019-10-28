@@ -61,7 +61,7 @@ Suportes articulados por duplo para monitor e notebook AirMicro ALPHA DUPLO AN:
 https://www.idesan.com.br/suporte-para-monitor-alpha-duplo-an
 
 
-Suportes articulados por duplo para notebook `OA-7X` (tem deposito no brasil com entrega via Correios. O frete é mais caro que o produto, contudo, o produto em si, incluido o frete é melhor que qualquer um disponivel para comprar em outros locais):
+Suportes articulados por duplo para notebook `OA-7X` (tem deposito no brasil com entrega via Correios. O frete é mais caro que o produto, contudo, o produto em si, incluido o frete é melhor e mais barato que qualquer um disponivel para comprar em outros locais):
 https://pt.aliexpress.com/item/32808143205.html
 
 
