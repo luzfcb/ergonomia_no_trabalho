@@ -30,6 +30,8 @@ Cadeira Herman Miller Embody Preta (12 anos de garantia): https://store.hermanmi
 
 Cadeira Herman Miller Aeron Grafite modelo B (12 anos de garantia): https://store.hermanmiller.com.br/cadeira-aeron-grafite-aer-grafite/p
 
+Cadeira Cavaletti Idea - 40101: http://www.cavaletti.com.br/linhas/detalhes/produto/40101-soft-_X221/linha/idea-_X23  (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
+
 
 ## Apoio para os pés
 
