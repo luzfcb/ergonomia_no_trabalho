@@ -15,6 +15,7 @@ Mesas de Escritório com Regulagem de Altura Elétrica (vulgo "standing desk") h
 
 ## Cadeiras:
 
+Cadeira Ergonômica Comfort-Seating Ergoman V2 Elite com Leg Rest: https://www.comfort-seating.com.br/cadeira-ergonomica-ergoman-v2-elite-com-leg-rest
 
 Cadeira Escritório Wau Super Ergonômica Mesh: http://www.loja.eroflex.com.br/cadeiras-de-escritorio/diretor/cadeira-escritorio-wau-super-ergonomica-preta-mesh
 
