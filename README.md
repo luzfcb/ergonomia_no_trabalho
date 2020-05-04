@@ -93,3 +93,5 @@ Logitech MX Ergo (trackball mouse): https://www.logitech.com/en-us/product/mx-er
 ## Artigos
 
 Tips for a sucessful switch to a standing desk: https://dev.to/jerodsanto/tips-for-a-successful-switch-to-a-standing-desk-4p8o
+
+25 Dicas Ergonômicas para Usuários de Computradores: http://www.areaseg.com/ergonomia/25dicas.html
