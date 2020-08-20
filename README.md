@@ -53,6 +53,10 @@ Suportes para monitor AirMicro Vero:
 https://www.idesan.com.br/suporte-para-notebook-vero
 
 
+Suporte articulado para 3 monitores SBRM731 (eu uso ele com 2 monitores)
+https://brasforma.com.br/pt/product/suporte-articulado-para-3-monitores-led-e-lcd-de-13-a-27-brasforma-sbrm731/
+
+
 ## Suporte articulado para monitor/notebook
 
 Suportes articulados por pistão a gás: [ELG Pedestais (Suportes Articulados Pistão)](http://www.elgpedestais.com.br/produtos/suportes/suportes-com-pistao-a-gas/)
