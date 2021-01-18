@@ -15,7 +15,7 @@ Mesas de Escritório com Regulagem de Altura Elétrica (vulgo "standing desk") h
 
 ## Cadeiras:
 
-Cadeira Ergonômica Comfort-Seating Ergoman V2 Elite com Leg Rest: https://www.comfort-seating.com.br/cadeira-ergonomica-ergoman-v2-elite-com-leg-rest
+Cadeira Ergonômica Comfort-Seating Ergoman V2 Elite com Leg Rest (vários amigos recomendam essa): https://www.comfort-seating.com.br/cadeira-ergonomica-ergoman-v2-elite-com-leg-rest
 
 Cadeira Escritório Wau Super Ergonômica Mesh: http://www.loja.eroflex.com.br/cadeiras-de-escritorio/diretor/cadeira-escritorio-wau-super-ergonomica-preta-mesh
 
@@ -31,7 +31,7 @@ Cadeira Herman Miller Embody Preta (12 anos de garantia): https://store.hermanmi
 
 Cadeira Herman Miller Aeron Grafite modelo B (12 anos de garantia): https://store.hermanmiller.com.br/cadeira-aeron-grafite-aer-grafite/p
 
-Cadeira Cavaletti Idea - 40101: http://www.cavaletti.com.br/linhas/detalhes/produto/40101-soft-_X221/linha/idea-_X23  (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
+Cadeira Cavaletti Idea - 40101 (eu uso essa aqui, e sinto falta do apoio para a cabeça): http://www.cavaletti.com.br/linhas/detalhes/produto/40101-soft-_X221/linha/idea-_X23  (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
 
 
 ## Apoio para os pés
@@ -53,7 +53,7 @@ Suportes para monitor AirMicro Vero:
 https://www.idesan.com.br/suporte-para-notebook-vero
 
 
-Suporte articulado para 3 monitores SBRM731 (eu uso ele com 2 monitores)
+Suporte articulado para 3 monitores SBRM731 (eu uso ele com 2 monitores, e gosto porquê os braços são longos e dá liberdade de movimento)
 https://brasforma.com.br/pt/product/suporte-articulado-para-3-monitores-led-e-lcd-de-13-a-27-brasforma-sbrm731/
 
 
