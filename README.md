@@ -39,7 +39,7 @@ Cadeira Cavaletti Idea - 40101: http://www.cavaletti.com.br/linhas/detalhes/prod
 
 https://www.ergonomize.com/linha-apoio-para-os-pes-c8
 
-
+https://www.casadaergonomia.com.br/loja/apoio-ergonomico-para-pes-8-alturas/
 
 ## Suporte para monitor/notebook
 
