@@ -25,13 +25,16 @@ Cadeira Escritório Okamura Contessa (vendida no brasil pela FlexForm) http://ww
 
 Cadeira Escritório FlexForm Principèssa http://www.flexform.com.br/produtos/principessa/
 
-Cadeira Escritório Caderode Way C-20 : https://www.caderode.com.br/poltronas/linha-way/3
+Cadeira Escritório FlexForm Led All Black HD: https://www.flexform.com.br/loja/office-chairs/cadeira-led-all-black-hd
+
+
+Cadeira Escritório Caderode Way C-20 : https://loja.caderode.com.br/cadeira-presidente/cadeira-way-presidente-premium-tela-preta/7-8
 
 Cadeira Herman Miller Embody Preta (12 anos de garantia): https://store.hermanmiller.com.br/cadeira-embody-preta-cn122-preto/p
 
 Cadeira Herman Miller Aeron Grafite modelo B (12 anos de garantia): https://store.hermanmiller.com.br/cadeira-aeron-grafite-aer-grafite/p
 
-Cadeira Cavaletti Idea - 40101 (eu uso essa aqui, e sinto falta do apoio para a cabeça): http://www.cavaletti.com.br/linhas/detalhes/produto/40101-soft-_X221/linha/idea-_X23  (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
+Cadeira Cavaletti Idea - 40101 (eu uso essa aqui, e sinto falta do apoio para a cabeça): https://www.cavaletti.com.br/produtos/idea/  (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
 
 
 ## Apoio para os pés
