@@ -37,6 +37,9 @@ Cadeira Herman Miller Aeron Grafite modelo B (12 anos de garantia): https://stor
 Cadeira Cavaletti Idea - 40101 (eu uso essa aqui, e sinto falta do apoio para a cabeça): https://www.cavaletti.com.br/produtos/idea/  (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
 
 
+Cadeira Cavaletti C3 - https://www.cavaletti.com.br/produtos/c3/   (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
+
+
 ## Apoio para os pés
 
 
