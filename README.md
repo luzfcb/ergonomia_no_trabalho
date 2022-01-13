@@ -64,6 +64,11 @@ Suporte articulado para 3 monitores SBRM731 (eu uso ele com 2 monitores, e gosto
 https://brasforma.com.br/pt/product/suporte-articulado-para-3-monitores-led-e-lcd-de-13-a-27-brasforma-sbrm731/
 
 
+
+Suporte para Para Notebook, Monitor LCD e Porta Textos - Ergonomize X3
+https://www.ergonomize.com/suporte-x3-para-notebook-monitor-lcd-e-porta-textos-p21
+
+
 ## Suporte articulado para monitor/notebook
 
 Suportes articulados por pistão a gás: [ELG Pedestais (Suportes Articulados Pistão)](http://www.elgpedestais.com.br/produtos/suportes/suportes-com-pistao-a-gas/)
