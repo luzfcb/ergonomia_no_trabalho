@@ -40,6 +40,7 @@ Cadeira Cavaletti Idea - 40101 (eu uso essa aqui, e sinto falta do apoio para a 
 
 Cadeira Cavaletti C3 - https://www.cavaletti.com.br/produtos/c3/   (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços. Contate um revendedor)
 
+Cadeira Cavaletti Way Gamer - https://www.cavaletti.com.br/produtos/way-gamer/ (Há varias opções de cores, tipos de tecido, tipo da base, tipo das rodas, tipo do suporte para os braços e etc. Contate um revendedor)
 
 ## Apoio para os pés
 
